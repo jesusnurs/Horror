@@ -1,6 +1,6 @@
 # Horror
 
-link 1 - https://trello.com/invite/b/Of05Rqj0/ATTI0428e81e679715acbeccf519107bf146CDB2DADB/описание-игры\
+link 1 - https://trello.com/invite/b/Of05Rqj0/ATTI0428e81e679715acbeccf519107bf146CDB2DADB/описание-игры \
 link 2 - 
 
 
